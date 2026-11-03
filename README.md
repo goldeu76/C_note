@@ -1,1 +1,1 @@
-# C_noteㅇㄹ
+# C_noteㅇ
